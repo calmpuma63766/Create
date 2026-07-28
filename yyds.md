@@ -15,7 +15,9 @@
 
 
 {变量3}{变量2}： 【WWW.705.vip】 点击进入注册即可
-<a href="https://ducttape3.org/?utm_source=github&utm_medium=banner&utm_campaign=gpt2_images_showcase"><img src="https://raw.githubusercontent.com/orderdibby/766/refs/heads/main/photo_2026-07-28_12-03-25.jpg](https://raw.githubusercontent.com/orderdibby/766/refs/heads/main/photo_2026-07-28_12-03-25.jpg)"<img src="https://raw.githubusercontent.com/orderdibby/766/refs/heads/main/photo_2026-07-28_12-03-25.jpg" />
+<a href="shturl.cc/ThmGE">
+  <img width="800" height="600" src="[这里替换成你的海报图片链接](https://raw.githubusercontent.com/orderdibby/766/refs/heads/main/photo_2026-07-28_12-03-21.jpg)" alt="宣传海报">
+</a>
 
 <img src="https://raw.githubusercontent.com/orderdibby/766/refs/heads/main/photo_2026-07-28_12-03-21.jpg" />
 
